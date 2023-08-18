@@ -12,6 +12,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on Data Analyst Project
 - 📫 How to reach me Email: rishsolanki@gmail.com
 - 👩‍💻 Connect Me On Linkedin Profile: www.linkedin.com/in/rishabh-solanki-471561159
-- 📫 How to reach me Email: rishsolanki@gmail.com
   
 Thanks for checking out my profile
